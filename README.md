@@ -1,0 +1,1 @@
+Masala pasta recipe with step by step photos. This is an easy, tasty and simple to prepare vegetarian pasta recipe made Indian style .Masala pasta and masala noodles are a favorite with many folks including kids. This recipe gives a tasty masala pasta and makes for a good brunch, snack or a light dinner.
